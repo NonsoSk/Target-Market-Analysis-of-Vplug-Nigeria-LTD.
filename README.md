@@ -1,4 +1,4 @@
-# Target-Market-Analysis-of-Vplug-Nigeria-LTD.
+# Target-Market-Analysis-of-Vplug-Nigeria-LTD
 
 
 Hello Everyone,
